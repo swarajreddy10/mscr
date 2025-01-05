@@ -98,4 +98,4 @@ Graduating: April 2025
 
 ---
 
-💻 "Building solutions that inspire, one line of code at a time." 🚀  
+💻 "Every line of code is a small story that shapes a bigger picture. Let's write something incredible together!"" 🚀  
